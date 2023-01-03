@@ -1,2 +1,0 @@
-# STMIKCSKDI.Github.io
-Nothing
